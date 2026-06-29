@@ -1,4 +1,4 @@
-
+vip IPVanish Addon | torrenting-support + IP-masking is the best IPVanish addon, featuring torrenting-support and IP-masking. Secure, fast, and optimized for privacy.
 
 
 
